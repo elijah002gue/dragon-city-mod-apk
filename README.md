@@ -1,0 +1,2 @@
+# dragon-city-mod-apk
+The number of simulation games is increasing at an accelerating rate every day, and they are getting more realistic by the day. In essence, Simulation games are intended to simulate real-life situations as closely as possible with sometimes animated or sometimes real characters. Now, simulation games are everyone’s favorite since they show the same memories as open-world games. Giant Realms, Dragon City, Dragon Mania, Pocket Frogs, and many others have been developed as simulation games. They are widely played every day.
